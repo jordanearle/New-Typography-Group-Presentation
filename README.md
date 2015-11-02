@@ -1,8 +1,8 @@
 #To Do
 
 ##Content:
-- Introduction to Bauhaus - 1/2
-- Introduction to New Typography movement  - 1/2
+- Introduction to Bauhaus - 1/2 -Stuart
+- Introduction to New Typography movement  - 1/2 -Aynsley
 - Type & graphic design  - 2/3 - Jordan
 - Main artists involved - 1/2 - Hannah
 - Use in popular culture - 1/2 - Hannah
